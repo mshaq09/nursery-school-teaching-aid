@@ -1,0 +1,1 @@
+nursery-school-teaching-aid
